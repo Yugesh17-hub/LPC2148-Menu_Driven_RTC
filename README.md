@@ -8,7 +8,11 @@
 
 ### 🎬 Demo Video
 
-👉 **[Watch the demo video](ADD_YOUR_VIDEO_LINK_HERE)**
+
+
+https://github.com/user-attachments/assets/9d869117-7c4b-4324-b156-afd8947410ed
+
+
 
 ---
 
